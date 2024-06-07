@@ -1,5 +1,4 @@
-
-where takes no responsibility for banned accounts
+We take no responsibility for banned accounts
 use the program in private lobbies that you are allowed to cheat in.
 
 
